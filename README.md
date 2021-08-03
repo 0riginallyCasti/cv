@@ -1,1 +1,1 @@
-# cv
+# this is my website make sure to mail me if you want to get custom websites like mine, you will get the basics like mine, it depends on you to style it and for your buttons to work I hope we have a great expirience together and you enjoy my programming to that level so that you can request a service of mine
